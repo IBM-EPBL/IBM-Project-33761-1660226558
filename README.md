@@ -10,4 +10,4 @@ Ragul V
 Paulsan S
 Dharanikumar K
 Industry Mentors: Khusboo
-Faculty Mentor: A. Beulah
+Faculty Mentor:Dr.D.Anitha
